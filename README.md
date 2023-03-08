@@ -1,2 +1,3 @@
 # Pruebas-Coursera
-Para el ejercicio opcionañ
+Para el ejercicio opcional
+Sisisisisisisisisisis skibidibop
